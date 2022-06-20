@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @doninhaget
+- 👀 I’m dev student lua
+- 🌱 I'm 3d modeler
+- 💞️ owner goddess shop
+- 📫 DC:thamy.obj#0001
